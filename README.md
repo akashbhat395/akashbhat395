@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **akashbhat201299@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KZBq6PV6lsoAR7cQxPF47mfNu-cFUkCY/view?usp=sharinghttps://drive.google.com/file/d/1KZBq6PV6lsoAR7cQxPF47mfNu-cFUkCY/view?usp=sharing](https://drive.google.com/file/d/1KZBq6PV6lsoAR7cQxPF47mfNu-cFUkCY/view?usp=sharinghttps://drive.google.com/file/d/1KZBq6PV6lsoAR7cQxPF47mfNu-cFUkCY/view?usp=sharing)
+- 📄 My Resume [https://drive.google.com/file/d/1KZBq6PV6lsoAR7cQxPF47mfNu-cFUkCY/view?usp=sharinghttps://drive.google.com/file/d/1KZBq6PV6lsoAR7cQxPF47mfNu-cFUkCY/view?usp=sharing](https://shorturl.at/eoqsX)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
